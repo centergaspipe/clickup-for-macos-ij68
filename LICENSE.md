@@ -1,4 +1,4 @@
-
+new ClickUp for macOS Workflow | task automation + voice notes is the best ClickUp for macOS workflow, featuring task automation and voice notes. Safe, efficient, and optimized
 
 
 
